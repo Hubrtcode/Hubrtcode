@@ -1,16 +1,40 @@
-## Hi there 👋
+## Hi there 👋                                                            
+                                                           
+                                                                                                                                                   
+                                                                                                                                                   
+                                                                                                                                                   
+        
+Hey, Im Hubert,
 
-<!--
-**Hubrtcode/Hubrtcode** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Currently learning python
+- Developing finance based micro-projects
+- Currently in education
 
-Here are some ideas to get you started:
+  Do not hesitate to contact me via my email or socials           
+  - Email: ruthub321@gmail.com
+  - Instagram: hbr_t22                                                                                                                                           
+                                                        =***++=====*       
+                                                    .*======+=++++++       
+                                                     **+*****#==++=+*      
+                                                           #*==++*=+*      
+                                                          **==++*#+++      
+                                                         **==++*%#+=+:     
+                                                        *+==++* %#+=+*     
+                                                      **+==++.   %*++*     
+                                   **=+.             **==+++     -#*       
+                                  **====+-       .. **==+=*                
+                                 *======+=++       **==++*                 
+                                *+===+**++=++*    **==++*                  
+                               *+===+* ##*++=+++ #*==++*                   
+                             :*+===+*    +#*+++=++==++*                    
+                            **====+.        #*++++=++.                     
+                           **====*            #**++*.                      
+                          **====*               #**                        
+                         **===+*                                           
+                        *+===+*                                            
+                       *+===+*                                             
+                      *===++*                                              
+                       **+*-                                               
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+                                                           
+                                                           
