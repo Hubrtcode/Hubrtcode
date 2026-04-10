@@ -11,8 +11,9 @@ Hey, Im Hubert,
 - Currently in education
 
   Do not hesitate to contact me via my email or socials           
-  - Email: ruthub321@gmail.com
-  - Instagram: hbr_t22                                                                                                                                           
+  - [Email](ruthub321@gmail.com)
+  - [Instagram](https://www.instagram.com/hbr_t22/)
+  - [LinkedIn](https://www.linkedin.com/in/hubert-rutkowski-belfast/)                                                                                                                                          
                                  
 
                                                            
